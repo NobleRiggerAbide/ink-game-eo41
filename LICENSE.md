@@ -1,4 +1,4 @@
-#  
+#  Experience ink game like never before with stealth ink game Scripts, the #1 Script. Includes custom skins and unlimited stamina for unbeatable
 
 
 
